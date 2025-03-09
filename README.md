@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning Front-end Programming<br>💬 Ask me about UX<br>⚡ PEACE ☮️ 
+🌱 I’m currently learning Front-end Programming<br>⚡ PEACE ☮️ 
 
 
 ## 🌐 Socials:
