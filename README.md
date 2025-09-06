@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning Front-end Programming<br>⚡ PEACE ☮️ 
+🌱 I’m currently learning Cybersecurity<br>⚡ PEACE ☮️ 
 
 
 ## 🌐 Socials:
